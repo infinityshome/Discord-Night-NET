@@ -5,7 +5,7 @@ The New Night NET is soon done
 
 
 My discord for help https://discord.gg/pfYjJyeAtd
-My discord acc for help
+My discord acc for help Night NET SUPPORT DM ME#7526
 
                         [/]=========================================================[\]
                         ││       1 - Ip Pinger             I      10 - version 1.0   ││
